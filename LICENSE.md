@@ -1,4 +1,4 @@
-
+Bear for macOS advanced Addon: goal tracking & custom shortcuts offers the most advanced Bear for macOS addon, with goal tracking and custom shortcuts. Ideal for professionals.
 
 
 
